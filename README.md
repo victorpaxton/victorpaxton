@@ -10,7 +10,6 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1uzfbqyvxDKQR54JSp5LFyyNVPOzQYoIo/view](https://drive.google.com/file/d/1uzfbqyvxDKQR54JSp5LFyyNVPOzQYoIo/view)
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
