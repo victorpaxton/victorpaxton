@@ -8,8 +8,6 @@
 
 - 📫 How to reach me **thanghuynh.cs@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1uzfbqyvxDKQR54JSp5LFyyNVPOzQYoIo/view](https://drive.google.com/file/d/1uzfbqyvxDKQR54JSp5LFyyNVPOzQYoIo/view)
-
 <p align="left">
 </p>
 
